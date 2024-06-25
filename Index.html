@@ -1,0 +1,4 @@
+<p>Work In progress(lmao)</p>
+<a href="https://docs.google.com/document/d/1c7rlVWr1qOyD0b_n0K54NSQOCuCIxPG74ODu3XWtido/edit?usp=sharing">Privicy Policy</a>
+
+<a href="https://www.youtube.com/channel/UCU3ZypkUxhr8tlU1q8rk3Cg">Subscribe to my youtube</a>
